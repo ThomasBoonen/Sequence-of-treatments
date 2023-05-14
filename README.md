@@ -34,8 +34,8 @@ Mehdi Chouachoua Bouali:
 - LinkedIn: https://www.linkedin.com/in/chouachoua/ 
  
 Thomas Boonen:  
-- Email:  
-- LinkedIn 
+- Email: thomas.boonen3@gmail.com 
+- LinkedIn: https://www.linkedin.com/in/thomas-boonen-3748b6201/
  
 Acknowledgments:  
 
